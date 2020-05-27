@@ -1,2 +1,4 @@
 # hello-world
-Just another repository
+
+Glory be to the one true God!
+Meet your new God-Emperor
